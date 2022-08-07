@@ -1,6 +1,6 @@
- Hey'll, I’m SanchiaLakkarvi
- I’m interested in to learn more in the field of Artificial Intelligence
- I’m currently pursing Btech CSE
+ Hey'll, I’m SanchiaLakkarvi.
+ I’m interested in to learn more in the field of Artificial Intelligence.
+ I’m currently pursing Btech CSE.
  Reach me on mail sanchialakkarvi@gmail.com
 
 <!---
