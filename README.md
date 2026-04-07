@@ -1,6 +1,6 @@
- Hey'll, I’m SanchiaLakkarvi.
+ Hey all, I’m Sanchia Lakkarvi.
  
- I’m currently pursing Btech CSE.
+ I’m currently pursing Masters of Information Technology.
  
  Reach me on mail sanchialakkarvi@gmail.com
 
